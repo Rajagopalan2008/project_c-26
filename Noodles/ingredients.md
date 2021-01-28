@@ -1,0 +1,1 @@
+Instant noodles packet, noodles masala, capsicum, onions and any vegetable you want.
